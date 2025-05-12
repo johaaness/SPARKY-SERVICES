@@ -1,7 +1,7 @@
 Website for fortnite cheats
 
-spoofer for many games
+Spoofer for many games
 
-prices on the website and the discord
+Prices on the website and the discord
 
-discord in the website
+Discord in the website
